@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sardo-Botirov
+- 👋 Hi, I’m @Sardor-Botirov
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning technical university
 - 💞️ I’m looking to collaborate on intellectuals
